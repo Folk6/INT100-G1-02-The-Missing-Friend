@@ -27,3 +27,5 @@
 ### รูปภาพประจำตัว
 ![Photo](Photo/Netipongpic.jpg)
 *รูปภาพของเน*
+
+ช่องทางการติดต่อได้ที่: [INSTAGRAM](https://www.instagram.com/netipong._/)
