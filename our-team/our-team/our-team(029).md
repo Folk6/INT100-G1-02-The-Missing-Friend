@@ -25,5 +25,5 @@
 ---
 
 ### รูปภาพประจำตัว
-![Photo](Photo/Netipongpic.png)
+![Photo](Photo/Netipongpic.jpg)
 *รูปภาพของเน*
