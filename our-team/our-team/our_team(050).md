@@ -19,4 +19,4 @@
 - ก๋วยเตี๋ยวเป็ด
 - ข้าวผัด
 
-ตามไปส่องโอเว่นได้ที่: [INSTAGRAM](https://www.instagram.com/wb.nomsod/)
+ตามไปส่องได้ที่: [INSTAGRAM](https://www.instagram.com/wb.nomsod/)
