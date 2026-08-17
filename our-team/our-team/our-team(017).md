@@ -17,4 +17,4 @@
 
 ![Photo](Photo/IMG_9146.PNG)
 
-ติดตามเพื่่อนได้ที่: [INSTAGRAM](https://www.instagram.com/k1mnm__?igsh=a3dlajk2M3RlbnBu&utm_source=qr)
+ติดตามเพื่่อนได้ที่: [INSTAGRAM](https://www.instagram.com/k1mnm__/)
