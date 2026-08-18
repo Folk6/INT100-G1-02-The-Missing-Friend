@@ -149,7 +149,8 @@
 ---
 
   
-**ผู้สัมภาษณ์ :** # Wachiravit Sneaha (050) 🐱
+**ผู้สัมภาษณ์ :** Wachiravit Sneaha (050) 🐱
+
 **ผู้ให้สัมภาษณ์ :** Payuth charoensri (035) 🐻
 
 ---
