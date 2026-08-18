@@ -158,6 +158,6 @@
  *คำถาม 4 : 
  เพื่อนชอบกินอกไก่ และอาหารจานหลักส่วนมากชอบกินพิซซ่า*
 
-![Photo](23387.jpg)
+![Photo](Photo/23387.jpg)
 
 ติดตามเพื่่อนได้ที่: [Facebook](https://www.facebook.com/payut.charoensri.1)
