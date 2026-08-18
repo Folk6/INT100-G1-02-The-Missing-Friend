@@ -29,6 +29,6 @@
 
 Contact: [Facebook](https://www.facebook.com/payut.charoensri.1)
 
-![Photo](Photo/23387.jpg)
+![Photo](Photo/punpayut.png)
 
 ---
