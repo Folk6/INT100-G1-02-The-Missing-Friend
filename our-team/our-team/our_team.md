@@ -178,8 +178,8 @@
 
  **💬 เพื่อนชอบกินอกไก่ 🍗 และอาหารจานหลักส่วนมากชอบกินพิซซ่า 🍕🍕😋**
 
-📱 Contact: [Facebook](https://www.facebook.com/payut.charoensri.1)
-
 <img src="Photo/punpayut.png" alt="Photo" width="240" />
+
+📱 Contact: [Facebook](https://www.facebook.com/payut.charoensri.1)
 
 ---
